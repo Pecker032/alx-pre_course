@@ -1,2 +1,2 @@
-mind blow
-do hard things
+mind blow do hard thing
+
